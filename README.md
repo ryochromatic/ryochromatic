@@ -1,2 +1,2 @@
-![](https://64.media.tumblr.com/fab3f3f20ebcd6e61627847cd936dc85/bf488cb8e6ccd93c-c6/s500x750/7cc9d3c4811ac84a439e9a86b2ada0c72eeeac27.jpg)
+![](https://media.discordapp.net/attachments/1018274362278826044/1220888212604715158/blur_edges_2.png?ex=661093c0&is=65fe1ec0&hm=8221a59b3ab30fcd2437b594b4f7b7bc9375754d26f31b804ec9292ed8856843&=&format=webp&quality=lossless&width=1008&height=408)
 
