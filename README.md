@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/1018274362278826044/1220888212604715158/blur_edges_2.png?ex=662308c0&is=661093c0&hm=c9f9bde29a12621c5f90ccc483f7090a8124eb354f2a257130f5a0e9ab7e14d1&=&format=webp&quality=lossless&width=1008&height=408)
+![](https://i.ibb.co/JK0kBgD/blur-edges-2.png)
