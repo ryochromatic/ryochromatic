@@ -1,1 +1,1 @@
-![](https://i.ibb.co/JK0kBgD/blur-edges-2.png)
+![](https://i.ibb.co/t43fJD1/blur-edges.png)
