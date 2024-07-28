@@ -1,6 +1,7 @@
 <div align="center">
 
-![](https://i.imgur.com/fadtUts.gif)
+![](https://i.imgur.com/13bx2id.gif)
+</p>
 <div align="center">
-
-</div>
+rentry is a wip :P
+</p>
